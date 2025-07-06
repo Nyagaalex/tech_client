@@ -1,4 +1,7 @@
 ## Hi there 👋
+Need help in IT ?, Let's make a deal☺
+Reach me on the various platform below
+
 
 <!--
 **Nyagaalex/Nyagaalex** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
