@@ -1,6 +1,5 @@
 ## Hi there 👋
 Need help in IT ?, Let's make a deal ☺
-Reach me on the various platform below
 
 - 🔭 I’m currently working on application softwares...
 - 🌱 I’m currently learning python...
